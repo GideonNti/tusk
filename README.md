@@ -1,1 +1,2 @@
-# tusk
+# My name is Gideon Nti Boateng and i'll be helping you today and any other day to understand the correct implications of how to use
+Github.com ...
